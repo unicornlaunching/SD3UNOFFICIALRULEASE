@@ -1,4 +1,4 @@
-# The wait is finnally over.
+# The wait is finally over.
 
 ## SD3 is finally in the palm of your hands.
 
